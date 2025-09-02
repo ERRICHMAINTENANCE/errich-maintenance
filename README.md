@@ -14,11 +14,11 @@ ERRICH Maintenance est spécialisée dans l’installation, la maintenance et le
 Voir le profil LinkedIn d'Abdeljalil Errich
 
 Contact
-📍 Adresse : [à compléter]
+📍 Adresse : 3 allée Germaine de Stael, 44300 Nantes
 
-📞 Téléphone : [à compléter]
+📞 Téléphone : +33671033259
 
-✉️ Email : [à compléter]
+✉️ Email : errichmaintenance@gmail.com
 
 Nom
  
